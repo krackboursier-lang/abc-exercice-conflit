@@ -2,5 +2,6 @@
 
 Eau de Source de montagne
 
-Poudre de dragon
+Poudre de dragon rouge 
+crache du feu sur la glace
 
